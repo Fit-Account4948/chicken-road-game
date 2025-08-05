@@ -1,56 +1,91 @@
-# Chicken Road 🐔
+# Chicken Road: Crash Game Review + Free Demo 🐔
 
-**Chicken Road** is a fast-paced crash-style arcade game where every move can either increase your multiplier… or turn your chicken into roadkill. Inspired by classic arcade humor and modern crypto game mechanics, it mixes reaction timing, risk control, and a bit of chaos into every round.
+Welcome to the official English reference for **Chicken Road**, the grid-based crash game where timing is everything and each step could mean a bigger payout — or total disaster.
 
-## 🎮 What is Chicken Road?
-
-Imagine this: a pixelated chicken on a grid full of danger. With each successful step forward, the potential reward grows — but so does the tension. One wrong move, and your round ends instantly. It's part strategy, part luck, and entirely addictive.
-
-No slot reels, no cards — just one chicken, your decision to move forward (or cash out), and a constantly growing multiplier.
+Whether you're here to explore game mechanics, find out where to play, or try the demo first — this page has you covered.
 
 ---
 
-## 🔍 Features
+## 🎮 What Is Chicken Road?
 
-- Real-time crash mechanics
-- Manual control — you choose when to step or stop
-- Four difficulty modes
-- Instant decision-based gameplay
-- Available on multiple casino platforms
+**Chicken Road** is a browser-based crash game developed by **InOut Games**.  
+Your goal? Guide the chicken safely across the road, dodging hidden traps — each move multiplies your payout.
 
----
+- 🐔 Original crash format with real manual control  
+- 🔥 Up to x10,000 multiplier on a single run  
+- ⚡ Fast, round-based gameplay  
+- 🎲 RNG-driven but skill-influenced decisions
 
-## 🧠 Why It’s Addictive
-
-What makes Chicken Road different from other crash games is its **visual humor** and **manual interaction**. You're not watching a line rise — you're guiding a bird through traffic. Each step becomes a real decision.  
-Whether you're playing for fun or tracking multipliers, it keeps you on edge in the best way.
+It’s like Crossy Road meets high-stakes multipliers.
 
 ---
 
-## 🔗 Learn More
+## 🚀 Try Chicken Road Instantly
 
-Want breakdowns of how it works, where to play, and how to approach different difficulty levels?
-
-👉 Visit the fan-powered hub: [https://chickenms.com](https://chickenms.com)
-
-There you’ll find:
-- Game mechanics explained
-- Demo modes
-- Casino reviews
-- Strategy discussions
-- Responsible gaming advice
-
----
-
-## 🤔 Why Did the Chicken Cross the Road?
-
-> "To dodge cars and chase multipliers."
-
-A simple joke turned into a modern casino concept — and somehow, it works.
-
----
-
-## 📩 Contact
-
-If you're a player, developer, or just a fan of chaotic game mechanics, feel free to connect or share feedback via the site:  
+👉 **Play in demo or real-money mode here:**  
 [https://chickenms.com](https://chickenms.com)
+
+- ✅ No downloads  
+- ✅ Works on desktop & mobile  
+- ✅ Play for fun or for real rewards
+
+---
+
+## 🎁 Play With a Bonus
+
+Several trusted platforms offer bonuses for Chicken Road:
+
+- 💰 100% bonus on first deposit (up to €4,500)  
+- 🪙 Free spins available depending on casino  
+- 🧾 No registration required for demo mode
+
+🔗 Bonus links and trusted operators at:  
+[https://chickenms.com](https://chickenms.com)
+
+---
+
+## 📱 Chicken Road on Mobile (No APK)
+
+Chicken Road runs perfectly on:
+
+- **Android** – Instant browser play, no install needed  
+- **iOS (iPhone/iPad)** – Fully optimized for Safari  
+- **PC & Mac** – Desktop-ready, smooth performance
+
+💡 *Tip:* Add the site to your home screen for app-like access.
+
+---
+
+## ✅ Why Players Love It
+
+- 💸 Max payout multiplier: **x10,000**
+- 🕹️ No complex rules — just tap, move, cash out
+- 🔥 Sessions last under 1 minute
+- 🎁 Casino bonuses supported
+- 🛡️ Safe, lightweight, and fair
+- 🌐 No app, no risk, no hassle
+
+---
+
+## ❓ FAQ
+
+**How do I start playing?**  
+Click the [link](https://chickenms.com), select demo or real mode, then tap forward to cross the road. Cash out before it's too late.
+
+**Can I play Chicken Road for free?**  
+Yes. The free demo is unlimited and requires no registration.
+
+**Is there an app or APK?**  
+No app needed. It’s fully web-based and mobile-friendly.
+
+---
+
+## 🔗 Start Playing Now
+
+Don't wait — try the demo and claim your bonus through the official platforms.  
+🎮 [Play Chicken Road at chickenms.com](https://chickenms.com)
+
+---
+
+> "Why did the chicken cross the road?"  
+> To chase x10,000 multipliers.
